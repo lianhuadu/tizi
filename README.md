@@ -29,4 +29,4 @@
 ### ❀【官方永久地址】https://github.com/htcc 【请收藏】
 ***
 五、关于本页——仅是备用，以上述官方地址为准。
-### ❀【本页地址】https://github.com/htcc 【请收藏】
+### ❀【本页地址】hhttp://is.gd/tizi99【请收藏】
