@@ -2,7 +2,7 @@
 
 #一、网门———2015自由上网全球最人气网站（推荐指数★★★★★）
   <tr>
-####    <td><a href="https://git.io/vJvcW" target="_blank"><img src="https://d1fkkgn0boo3on.cloudfront.net/Up/0WMDT0.jpg" /></a></td>点开永久地址后，再点网门动态地址，打开后就是网门真正的主页。
+####    <td><a href="https://git.io/vJvcW" target="_blank"><img src="https://d1fkkgn0boo3on.cloudfront.net/Up/0WMDT0.jpg" /></a></td>点开永久地址后，再点网门动态地址，打开后就是网门真正主页。
 ### ☻网门【官方永久地址】https://git.io/vJvcW
 ### ►网聚全球资讯热点 互联网精华资源入口
 ### ►全球最热门电影 视频 新闻 翻墙软件 音乐 绘画 电子书
@@ -22,6 +22,7 @@
 #### ★【备用说明】在自由上网简易方法中，可以找到网门。
 ******
 #三、聚缘阁
-### ►http://is.gd/ju2015 【动态地址】有时效性，请及时浏览。
+### ►http://is.gd/ju2015 【动态地址】有时效性，请及时浏览。w
+【备用说明】在自由上网简易方法中，点开动态网，页面最低端就可以找到聚缘阁。
 #四、真实报道
 ### ❀【官方永久地址】https://github.com/htcc 【请收藏】
