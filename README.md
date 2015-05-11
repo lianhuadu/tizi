@@ -5,7 +5,7 @@
   <tr>
 ####    <td><a href="https://git.io/vJvcW" target="_blank"><img src="https://d1edyzn5utrkbr.cloudfront.net/Up/0WMYJ0.jpg"  <tr>    <td><a href="https://git.io/vJvcW" target="_blank"><img src="https://d1fkkgn0boo3on.cloudfront.net/Up/0WMDT0.jpg" /></a></td>
 ### ►点开永久地址后，再点动态地址，打开后就是网门真正主页。
-### ☻网门【官方永久地址】https://git.io/vJvcW
+### ☻网门【官方永久地址】https://git.io/vJvcW【区分大小写，请添加到浏览器书签里收藏，方便长久使用】
 ### ►网聚全球资讯热点 互联网精华资源入口
 ### ►全球最热门电影 视频 新闻 翻墙软件 音乐 绘画 电子书
 ### ►动态网等全球热门网站
@@ -19,8 +19,7 @@
 #### ★为获得更好的上网体验，强烈推荐所有用户使用谷歌浏览器Chrome，最快最安全最稳定。 
 ******
 #二、自由上网简易方法（推荐指数★★★★）
-### ❀【长效地址】http://is.gd/free99
-### ❀【长效地址】http://is.gd/zhen99
+### ❀【永久短地址】http://git.io/vfL6U【区分大小写，请添加到浏览器书签里收藏，方便长久使用】
 #### ★【备用说明】在自由上网简易方法中，可以找到网门。
 ******
 #三、聚缘阁
